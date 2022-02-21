@@ -20,9 +20,9 @@ Stream Over 7,500 Live TV Channels Around The World And Netflix, Prime, HBO VOD 
 - IPTV Extreme Pro Android App Included
 - MAG , Android , M3U , PC , Smart TV , Kodi , iOS , Enigma , Dreambox , StartLive , & More Devices Supported
 - *View Full Channel List* (https://a-network.ca/index.php?rp=/knowledgebase/90/Latest-Full-Channel-List.html)
+__________________________________________________________________________________________________________________________________
 
-
-🔶Our Website Link: https://a-network.ca/cart.php?gid=5 🔶
+>🔶Our Website Link: https://a-network.ca/cart.php?gid=5 🔶
 
 __________________________________________________________________________________________________________________________________
 >Full IPTV Channel List: https://a-network.ca/index.php?rp=/knowledgebase/90/Latest-Full-Channel-List.html
